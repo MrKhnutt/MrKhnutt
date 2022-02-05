@@ -1,6 +1,6 @@
 # James Hancock
 ### Computer Science Student
-All of my work on here is currently private, if you need to see anything I have to offer shoot me a message. You can also visit me on LinkedIn @jamesdavidhancock
+All of my work on here is currently private, if you need to see anything I have to offer shoot me an email. You can also visit me on LinkedIn @jamesdavidhancock
 
 ## Languages
 I have knowledge of the following languages!
